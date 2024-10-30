@@ -2,7 +2,7 @@
 - 👀 I’m interested in quantitative investment
 - 🌱 I’m currently learning mathematics
 - 💞️ I’m looking to collaborate on 
-- 📫 How to reach me 
+- 📫 How to reach me Contact on E-mail #kkehdbs17@gmail.com
 - 😄 Pronouns: Lazy
 - ⚡ Fun fact: I have dry eye syndrome
 
